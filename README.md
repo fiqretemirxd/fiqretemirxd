@@ -4,3 +4,4 @@
 - 💞️ I’m looking to collaborate on MAPPA
 - 📫 How to reach me : email me at fiqretemirxd@gmail.com
 - I'm 22 y/o 
+- My Full name is Fiqret Emir bin Nasarudin. My ID is SET19070186
